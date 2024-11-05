@@ -1,0 +1,2 @@
+The video showcases how Interacts AI can revolutionize hospital efficiency by reducing operational costs, improving patient service, and handling inquiries 24/7. It highlights key benefits like saving up to 40% on costs and managing three times more queries with the same resources. Through animations and testimonials, the video emphasizes Interacts AI's transformative impact on hospital administration and patient management.
+VIDEO LINK-https://drive.google.com/file/d/1OtJWqyGBgrhw8KXfOZAzcJXqWgb25grj/view?usp=sharing
